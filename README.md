@@ -1,2 +1,2 @@
-# huzzah
-Youth Repertory Training in Classical and Contemporary Theatre.
+# Huzzah
+Youth Repertory Training in rooted in Craft, Passion and Performance.
